@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Punkrock81
-- 👀 I’m interested in ...learnong more
+- 👀 I’m interested in ...learning more
 - 🌱 I’m currently learning ...to code
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me .. message here
