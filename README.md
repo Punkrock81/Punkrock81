@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Punkrock81
 - 👀 I’m interested in ...learning more
 - 🌱 I’m currently learning ...to code
-- 💞️ I’m looking to collaborate on nothing yet
+- 💞️ I’m looking to collaborate on.. nothing yet
 - 📫 How to reach me .. message here
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...I hate descibing myself
